@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @maekle
+- 🌱 I’m currently learning animation
+- 💞️ I’m looking to collaborate on music projects, 2D artwork and animation, side hustles
+- 📫 How to reach me: lickmaekl@gmail.com
